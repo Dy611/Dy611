@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dy611 (Mikel W)
+- 👋 Hi, I’m @Dy611
 - 👀 I’m interested in Programming, Games, Friends
 - 📫 How to reach me robek141@gmail.com || Mikel W#2415 (Discord)
 
